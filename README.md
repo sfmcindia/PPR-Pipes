@@ -1,0 +1,2 @@
+# PPR-Pipes
+No. 1 ppr pipes suplier in delhi sfmc india. sfmc india sell best quality in ppr pipes.  Presently PP-R pipes &amp; fittings are most reliable in plumbing and water supply plants, due to their chemical features and fusion welding, which ensures the plumbing to have a perfect seal tight system.  Approved by the Health Organization, Eco-Friendly Quality, Temperature Resistance Quality etc, puts PP-R pipes &amp; fittings as the best selection. and we supply all types of pipes especially plastic pipe all sizes of pipes are available.
